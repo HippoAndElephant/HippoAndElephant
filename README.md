@@ -1,4 +1,4 @@
-Bonour à tous,
+Bonjour à tous,
 
 Hippo&Elephant est le modeste répertoire de Théo B. (enseignant le jour - passionné de l'image la nuit).
 
